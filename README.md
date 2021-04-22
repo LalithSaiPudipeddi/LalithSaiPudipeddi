@@ -1,0 +1,3 @@
+I have 2 years of experience in coding, implementing and lerning new programming languages. I love developing interactive games using python.
+I worked as a machine LEarning data associate at Amazon Alexa Data services.
+I have so much passion for learning. I also believe that imagination is the key to success. As Einstein said, "knowledge takes you from A to B, but imagination takes you everywhere". In addition to my career activities, I have devoted a big portion of my time to exploring computer science and its universe of discourse. In recent times, Mobile application development, web application,have caught my attention. Particularly, up next, I am focusing on the interplay among mobile application development, web application develepment.
